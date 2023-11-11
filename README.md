@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AlexfexvixCode
+- 👀 I’m interested in Programming (Obviously), Music (Specially Piano), Art, Pixel-Art, Origami, Videogames and Yoyos
+- 🌱 I’m currently learning C
+- 📫 How to reach me fresnel.alexander1108@gmail.com
